@@ -1,4 +1,4 @@
-# navyads138
+# navyads138-star
 
 # 👋 Hi, I'm Navya!
 
